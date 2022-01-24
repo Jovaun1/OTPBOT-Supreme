@@ -18,7 +18,6 @@ Join https://t.me/otpbotsupreme for 10mins free trial.
 OTPBOT Supreme in action
 ---
 
-https://youtu.be/iPWR3xNSPso
 
 Join https://t.me/otpbotsupreme for free trial. OTPBOT-Supreme Bypass SMS verifications from Instagram, Snapchat, Paypal, Google, 3D Secure, Apple, Zelle and many others...
 
